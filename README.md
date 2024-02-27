@@ -3,7 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+code&size=30&pause=1000&color=0021F7&background=0009FF00&random=false&width=435&lines=SIYAM+AHMED+)](https://git.io/typing-svg)
 
 ## 𝚂𝙾𝙲𝙸𝙰𝙻 𝙻𝙸𝙽𝙺 :
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/SIYAM-143) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/itsrimon.143) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@@bdcybertech?si=3kOSu1WYozCQPKfF) 
+[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/Mr.White143cyber) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://www.instagram.com/mr_white_143cyber) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@MRWHITE143?si=BkNBV6M39cjIpjJh) 
 
 ### 𝙿𝚁𝙾𝙵𝙸𝙻𝙴 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂... 
  
